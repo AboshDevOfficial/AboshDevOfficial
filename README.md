@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AboshDevOfficial
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning about life
+- 💞️ I’m looking to collaborate on my repositories
+- 📫 How to reach me: add me or join my discord server
